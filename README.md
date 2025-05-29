@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Krish-Gupta07
 - 👀 I’m interested in Startups and Designing
 - 🌱 I’m currently learning UI/UX, HTML & CSS
-- 📫 How to reach me - krishhcreates@gmail.com
+- 📫 How to reach me - krishgcreates@gmail.com
 - 😄 Pronouns: He/him
 
 
